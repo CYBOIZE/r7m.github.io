@@ -1,2 +1,2 @@
-# r7m.github.io
-This is a public webpage for receiving  info about Riddhit and you can also message me directly through it .FEEL THE VIVES OF GAMING AND CYBER
+http://127.0.0.1:5500/R7M.html#links
+ VISIT NOW FOR A GAMER VIBE With RIDDHIT
